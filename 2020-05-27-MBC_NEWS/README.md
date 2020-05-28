@@ -1,8 +1,9 @@
 # 日 프로레슬러 '악플'에 숨져…"악플러 신상 밝혀야"
 
+[MBC뉴스 기사](https://imnews.imbc.com/replay/2020/nwdesk/article/5788230_32524.html) | [YOUTUBE 동영상](https://www.youtube.com/watch?v=6PVIe9lasVs)
+
 ![image](https://user-images.githubusercontent.com/7610860/83199373-016a9400-a17c-11ea-9188-bb98e8eef122.png)
 
-[MBC뉴스 기사](https://imnews.imbc.com/replay/2020/nwdesk/article/5788230_32524.html) | [YOUTUBE 동영상](https://www.youtube.com/watch?v=6PVIe9lasVs)
 
 
 > 앵커
